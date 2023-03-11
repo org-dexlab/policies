@@ -1,4 +1,4 @@
-## Shake Alarm Clock: Privacy policy
+## Belly Fat Killer Women: Privacy policy
 
 Welcome to the Belly Fat killer Women app for Android!
 
