@@ -1,4 +1,4 @@
-## Belly Fat Killer Women: Privacy policy
+## Belly Fat Burn for Women: Privacy policy
 
 Welcome to the Belly Fat killer Women app for Android!
 
